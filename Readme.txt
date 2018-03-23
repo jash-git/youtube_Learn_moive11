@@ -75,7 +75,7 @@ Hacks Battery
 	How To Make a Powerful Electric Lighter at Home Using Battery[電池+鎢絲電子點火器]
 		https://www.youtube.com/watch?v=7GzEg0cldB8
 	
-	9 Awesome Life Hacks for Battery
+	9 Awesome Life Hacks for Battery[9V電池+10歐姆+1LED=簡易照明,9V電池變鑰匙壁扣,9V電池便火柴點火器,9V電池保麗龍切割器,9V電池+4LED+開關+長尾夾=簡易帽燈]
 		https://www.youtube.com/watch?v=uNp8wqzznxk
 	
 	8 BATTERY LIFE HACKS
