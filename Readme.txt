@@ -78,10 +78,10 @@ Hacks Battery
 	9 Awesome Life Hacks for Battery[9V電池+10歐姆+1LED=簡易照明,9V電池變鑰匙壁扣,9V電池便火柴點火器,9V電池保麗龍切割器,9V電池+4LED+開關+長尾夾=簡易帽燈]
 		https://www.youtube.com/watch?v=uNp8wqzznxk
 	
-	8 BATTERY LIFE HACKS
+	8 BATTERY LIFE HACKS[磁鐵達到電池簡易串聯,9V電池變鑰匙壁扣,AA電池變觸碰筆,鋁箔讓不同大小電池可以一起使用,鋁箔+電池=點火]
 		https://www.youtube.com/watch?v=u4AcGo3VYaI
 	
-	4 Simples Life Hacks con Pilas | DIY
+	4 Simples Life Hacks con Pilas - DIY
 		https://www.youtube.com/watch?v=MxgkQqqer4A
 	
 	6 Life Hacks for Battery YOU SHOULD KNOW
@@ -118,4 +118,11 @@ Hacks Battery
 		https://www.youtube.com/watch?v=CmxR1V5nrCk
 
 		
-Mini Weapon Pocket Gun from Pencil	
+Mini Weapon Pocket Gun from Pencil
+
+https://www.youtube.com/channel/UCjGKnI2hIGdjFzA_CZs5YIw
+https://www.youtube.com/channel/UCPbVm5eywZtIB0R82_MJR8A
+https://www.youtube.com/channel/UCO0--uVBE8kcIJJkvDJ83tA
+https://www.youtube.com/channel/UC92-zm0B8vLq-mtJtSHnrJQ
+https://www.youtube.com/channel/UC8MFNkCuOrpcCxwe1AgPkZQ
+https://www.youtube.com/user/HawkGuruHacker
