@@ -81,7 +81,7 @@ Hacks Battery
 	8 BATTERY LIFE HACKS[磁鐵達到電池簡易串聯,9V電池變鑰匙壁扣,AA電池變觸碰筆,鋁箔讓不同大小電池可以一起使用,鋁箔+電池=點火]
 		https://www.youtube.com/watch?v=u4AcGo3VYaI
 	
-	4 Simples Life Hacks con Pilas - DIY
+	4 Simples Life Hacks con Pilas - DIY[磁鐵+電池+銅線=簡易馬達,磁鐵取下裝在遙控器內的電池]
 		https://www.youtube.com/watch?v=MxgkQqqer4A
 	
 	6 Life Hacks for Battery YOU SHOULD KNOW
