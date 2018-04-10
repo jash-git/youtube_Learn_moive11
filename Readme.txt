@@ -84,7 +84,7 @@ Hacks Battery
 	4 Simples Life Hacks con Pilas - DIY[磁鐵+電池+銅線=簡易馬達,磁鐵取下裝在遙控器內的電池]
 		https://www.youtube.com/watch?v=MxgkQqqer4A
 	
-	6 Life Hacks for Battery YOU SHOULD KNOW
+	6 Life Hacks for Battery YOU SHOULD KNOW[鋁箔讓不同大小電池可以一起使用,自製小電磁鐵,電池=觸碰(控)筆,電池+鋁箔紙=點火,電池+鋁箔=手中加熱器]
 		https://www.youtube.com/watch?v=EbKoDD97r9k
 	
 	3 Incredible Life Hacks for Battery
