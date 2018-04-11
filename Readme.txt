@@ -87,7 +87,7 @@ Hacks Battery
 	6 Life Hacks for Battery YOU SHOULD KNOW[鋁箔讓不同大小電池可以一起使用,自製小電磁鐵,電池=觸碰(控)筆,電池+鋁箔紙=點火,電池+鋁箔=手中加熱器]
 		https://www.youtube.com/watch?v=EbKoDD97r9k
 	
-	3 Incredible Life Hacks for Battery
+	3 Incredible Life Hacks for Battery[鋁箔讓不同大小電池可以一起使用,電池+鋁箔紙=點火,電池盒少一顆電池用迴紋(六腳螺絲)針代替]
 		https://www.youtube.com/watch?v=W2t-_q2OP-g
 	
 	10 BEST BATTERY LIFE HACKS
