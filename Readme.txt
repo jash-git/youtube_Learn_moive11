@@ -90,7 +90,7 @@ Hacks Battery
 	3 Incredible Life Hacks for Battery[鋁箔讓不同大小電池可以一起使用,電池+鋁箔紙=點火,電池盒少一顆電池用迴紋(六腳螺絲)針代替]
 		https://www.youtube.com/watch?v=W2t-_q2OP-g
 	
-	10 BEST BATTERY LIFE HACKS
+	10 BEST BATTERY LIFE HACKS[電池+鋁箔=手中加熱器(暖暖蛋),電池+磁鐵+銅線=簡易旋轉馬達,電池+鐵絲+六瞭螺絲=電磁鐵,電池+鋁箔紙=點火,9V+4個LED=臨時照明]
 		https://www.youtube.com/watch?v=CoF6b2yzNe8
 	
 	22 USEFUL HACKS WITH BATTERIES AND MAGNETS
