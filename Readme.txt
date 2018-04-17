@@ -96,7 +96,7 @@ Hacks Battery
 	22 USEFUL HACKS WITH BATTERIES AND MAGNETS[電池點火系列(針頭+自動鉛筆筆芯+鋁箔紙),判斷電池電量,電池+線圈=小火車,電池+磁鐵+鋁箔=圓周自轉運動,電池+磁鐵+銅線=簡易旋轉馬達,電池+鐵絲+六角螺絲=電磁鐵,9V+4個LED=臨時照明,電池+鋁箔=手中加熱器(暖暖蛋),電池當觸碰筆,遙控器少一個電池可以用迴紋針新頂著,自製9V出手機充電器,磁鐵+彈簧的USB收納器,自製磁浮陀螺,鋁箔紙+塑膠袋+電熨斗=密封袋,鋁箔讓不同大小電池可以一起使用]
 		https://www.youtube.com/watch?v=lB6wZdY_Tzc
 	
-	2 Awesome Life Hacks for Battery
+	2 Awesome Life Hacks for Battery[9V充電器，9V點火]
 		https://www.youtube.com/watch?v=0Hi1GUqA80A
 	
 	4 Awesome Life Hacks for BATTERY
