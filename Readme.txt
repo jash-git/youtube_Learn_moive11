@@ -117,7 +117,11 @@ Hacks Battery
 	5 Survival Car Battery Life Hacks
 		https://www.youtube.com/watch?v=CmxR1V5nrCk
 
-		
+How to Make a Electric Bike Using dc Motor(電動自行車/電動腳踏車)
+	https://www.youtube.com/watch?v=esMetJ6VdWc
+How to Make Electric Bike from old Bike
+	https://www.youtube.com/watch?v=xkhlc4zgib4
+
 Mini Weapon Pocket Gun from Pencil
 
 https://www.youtube.com/channel/UCjGKnI2hIGdjFzA_CZs5YIw
