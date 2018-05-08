@@ -102,7 +102,7 @@ Hacks Battery
 	4 Awesome Life Hacks for BATTERY[9V+電池+點菸轉5V=手機充電,9V+鋼絲絨=點火,3號電池+磁鐵+和息+鑰匙=保麗龍切割器]
 		https://www.youtube.com/watch?v=GWKFbpSyIDM
 	
-	8_01 BATTERY LIFE HACKS
+	8_01 BATTERY LIFE HACKS[3號電池+錫箔紙=點火,3號電池用磁鐵串接,9V電池手機充電,]
 		https://www.youtube.com/watch?v=wAI5540uQDw
 	
 	3 Awesome Life Hacks for Battery
